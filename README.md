@@ -18,4 +18,4 @@
 - Get internships in tech
 
 ## 📫 Connect with me
-- LinkedIn: (add your link here)
+- LinkedIn: www.linkedin.com/in/anany-saxena-872a26389
